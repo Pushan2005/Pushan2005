@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Pushan2005
+- 
+- 🌱 I’m currently a student working on applying for Uni ...
+
+- 📫 How to reach me ...
+      Discord: Broken Nokia#1464
