@@ -4,5 +4,5 @@
 - 🌱 I’m currently a student at RV University
 
 - 📫 How to reach me ...
-      Discord: brokennokia
+      Discord: brokennokia /
       Mail: pushan.work@outlook.com
