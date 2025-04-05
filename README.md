@@ -5,4 +5,4 @@
 
 - 📫 How to reach me ...
       Discord: brokennokia /
-      Mail: pushan.work@outlook.com
+      Mail: pushan.sahanaganesh@gmail.com
